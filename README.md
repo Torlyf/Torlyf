@@ -1,0 +1,10 @@
+- 👋 Hi, I’m @Torlyf
+- 👀 I’m interested in Minecraft, Java, Python, and Artificial Intelligence.
+- 🌱 I’m currently learning Java, Python, and Artificial Intelligence.
+- 💞️ I’m not yet looking to collaborate
+- 📫 How to reach me:
+-   Discord - Cubert_4x4
+-   Youtube - Cubert_4x4
+-   Gmail - Cuberxt@gmail.com
+- 😄 Pronouns are kinda dumb tbh, but I'm He/Him.
+- ⚡ Fun fact: Lemons are cool, but Cinnamon? Not so much.
